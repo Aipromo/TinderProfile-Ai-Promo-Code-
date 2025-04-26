@@ -1,10 +1,12 @@
-# TinderProfile AI Coupon Code 25% OFF Discount Code (100% Working)
+# TinderProfile AI Coupon Code 75% OFF Discount Code (100% Working)
 
 ## **Introduction to TinderProfile AI: Your Secret Weapon for Dating Success**  
 
 In the competitive world of online dating, your profile is everything. **TinderProfile AI** is a cutting-edge tool that uses artificial intelligence to analyze, optimize, and perfect your dating profile—helping you get more matches, better conversations, and real dates. 
 
-[💰 Click Here and Get 25% OFF Discount Now 💰 ](https://tinderprofile.ai/?via=muhammad)
+## Use this Coupon Code:  GET60 
+
+[💰 Click Here and Get 75% OFF Discount Now 💰 ](https://tinderprofile.ai/?via=abdul-kareem)
 
 ### **What is TinderProfile AI?**  
 TinderProfile AI is an **AI-driven dating profile optimizer** that:  
@@ -12,8 +14,8 @@ TinderProfile AI is an **AI-driven dating profile optimizer** that:
 ✔ **Recommends** high-impact improvements  
 ✔ **Generates** irresistible bios and conversation starters  
 ✔ **Predicts** which photos perform best  
-
-[💰 Click Here and Get 25% OFF Discount Now 💰 ](https://tinderprofile.ai/?via=muhammad)
+## Use this Coupon Code:  GET60
+[💰 Click Here and Get 75% OFF Discount Now 💰 ](https://tinderprofile.ai/?via=abdul-kareem)
 
 Unlike generic dating advice, TinderProfile AI uses **machine learning trained on thousands of successful profiles** to give you a data-backed edge.  
 
@@ -27,7 +29,7 @@ Unlike generic dating advice, TinderProfile AI uses **machine learning trained o
 
 ## **Key Features of TinderProfile AI (Full Breakdown)**  
 
-[💰 Click Here and Get 25% OFF Discount Now 💰 ](https://tinderprofile.ai/?via=muhammad)
+[💰 Click Here and Get 75% OFF Discount Now 💰 ](https://tinderprofile.ai/?via=abdul-kareem)
 
 ### **1. AI Photo Analyzer & Selector**  
 - **Smart Scoring:** Rates each photo (1-10) based on attractiveness, authenticity, and engagement potential  
@@ -82,11 +84,11 @@ Unlike generic dating advice, TinderProfile AI uses **machine learning trained o
 
 ## **How to Get Started (Step-by-Step)**  
 
-1. **Go to https://tinderprofile.ai/?via=muhammad
+1. **Go to https://tinderprofile.ai/?via=abdul-kareem
 2. **Upload your current profile photos & bio**  
 3. **Get your AI analysis report (takes 2 minutes)**  
 4. **Apply the recommended upgrades**  
-5. **Use code `MUHAMMAD` for 25% off Premium!**  
+5. **Use code `GET60` for 25% off Premium!**  
 
 ---
 
@@ -98,7 +100,7 @@ Unlike generic dating advice, TinderProfile AI uses **machine learning trained o
 | **Premium** | $29/month | Full analysis, unlimited rewrites, conversation help |  
 | **Pro** | $99/year (Best Value) | All Premium features + expert reviews |  
 
-**🔥 Exclusive Discount:** Use code **`MUHAMMAD`** for **25% off any plan!**  
+**🔥 Exclusive Discount:** Use code **`GET60`** for **25% off any plan!**  
 
 ---
 
@@ -136,6 +138,6 @@ If you’re **serious about online dating**, TinderProfile AI is the easiest way
 
 **🚀 Try It Risk-Free Today!**  
 👉  https://tinderprofile.ai/?via=muhammad
-👉 Use code **`MUHAMMAD`** for **25% OFF!**  
+👉 Use code **`GET60`** for **25% OFF!**  
 
 *"Went from 2 matches a week to 10+ after using TinderProfile AI!"* — Jake, 28
